@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Rainey254
+- 👋 Hi, I’m JAVIS MATHEWS
 - 👀 I’m interested in collaborating and developing new projects
 - 🌱 I’m currently learning software development
 - 💞️ I’m looking to collaborate on diffrent projects
-- 📫 How to reach me whatsapp +2547683446
+- 📫 How to reach me whatsapp +254701683446
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 
 
